@@ -8,4 +8,6 @@
  Company should conduct regular meetings to know about employees reason for attrition.
  Provide growth opportunities to decrease attrition rate.
  Addressing potential salaty related concerns could be crucial. 
+ 
+ Power Point Link:-https://www.canva.com/design/DAF766-e9bU/nCn2IOMlTj1Yy8SCl3NNlg/edit?utm_content=DAF766-e9bU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
