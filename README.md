@@ -9,5 +9,6 @@
  Provide growth opportunities to decrease attrition rate.
  Addressing potential salaty related concerns could be crucial. 
  
- Power Point Link:-https://www.canva.com/design/DAF766-e9bU/nCn2IOMlTj1Yy8SCl3NNlg/edit?utm_content=DAF766-e9bU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+ PDF Link:- https://drive.google.com/file/d/1TIsyz3d0HWNZD2_XgxOmP1eEoyoQizNb/view?usp=sharing
 
+ Excel Link:-https://1drv.ms/x/c/048be9bdd1c7d2b8/EapIvwm8spxFiC7-GLEpIJwBOSZJzseZRI9qZwupAkC9NQ?e=iWMxXG
